@@ -15,4 +15,4 @@ más aceptadas por el público durante la década de los 90.*
 6. The Devil Put Dinosaurs Here (2013)
 7. Rainier Fog (2018)
 
-*Frases de Layne Staley*
+**Frases de Layne Staley:**
