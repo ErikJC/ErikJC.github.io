@@ -5,4 +5,4 @@
 
 *En 2006 se anunció la reunión de todos sus miembros, siendo el fallecido vocalista Layne Staley sustituido por William DuVall, exmiembro de Comes with the Fall y la edición de un nuevo álbum de estudio, titulado Black Gives Way to Blue, que salió a la venta el 29 de septiembre de 2009. Actualmente su más reciente álbum titulado Rainier Fog, fue lanzado el 24 de agosto de 2018.*
 
-##DISCOFRAFÍA
+## DISCOFRAFÍA
