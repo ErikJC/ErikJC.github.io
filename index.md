@@ -16,4 +16,5 @@ más aceptadas por el público durante la década de los 90.*
 7. Rainier Fog (2018)
 
 **_Frases de Layne Staley:_**
-> Siempre he estado detrás de la vida perfecta. He tomado todos los caminos para llegar a donde quería. Pero no importa a dónde vaya, siempre vengo a casa.
+> *Siempre he estado detrás de la vida perfecta. He tomado todos los caminos para llegar a donde quería. Pero no importa a dónde vaya, siempre vengo a casa.*
+> *Creo que puedo ir a cualquier lugar que desee. Si sólo supiera dónde ir.*
